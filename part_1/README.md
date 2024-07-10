@@ -6,7 +6,7 @@ Part One:
 4. She had long, silver hair and a robe adorned with stange symbols.
 5. The woman approached Alexander and said, "You have a great dessiny ahead of you, young prince."
 6. Curious, Alexander asked, "What do you mean?"
-7. The woman smiled and replied, "You must embark on a journey to find the lost Jewel of Happines.
+7. The woman smiled and replied, "You must embark on a journey to find the lost Jewel of Happiness.
 8. It will bring peace and prosperity to your land."
 9. Determined to help his peple, Alexander set off on his quest the very next morning.
 10. He travlled through dense forests, climbed treacherous mountains, and crossed vast deserts.
